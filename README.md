@@ -1,4 +1,5 @@
 # 💫 About Me:
+Passionate about problem solving
 I'm currently learning
 
 
