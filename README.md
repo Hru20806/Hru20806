@@ -1,5 +1,6 @@
 # 💫 About Me:
-Passionate about problem solving
+Hruthvik S
+Passionate about problem solving.
 I'm currently learning
 
 
